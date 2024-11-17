@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rrcorcho
-- 👀 I’m interested in kebabs
+- 👀 I’m interested in kebabs, science, LEAN, automation.
 - 🌱 I’m currently learning mental peace
 - 💞️ I’m looking to collaborate on future
 - 📫 How to reach me rodriguezcorchor@gmail.com
